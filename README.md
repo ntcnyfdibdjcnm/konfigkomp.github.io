@@ -1,0 +1,1 @@
+# konfigkomp.github.io
